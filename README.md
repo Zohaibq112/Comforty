@@ -61,7 +61,6 @@
 
 </br>
 </br>
-<h1>You subscribe my youtube channel and github follow. my youtube channel link: <a href="https://www.youtube.com/@lifeonthecode">Click On</a></h1>
 
 
 
